@@ -1215,7 +1215,7 @@ Semoga Kamu Senang Berada Disini Serta Jangan Lupa Untuk Membaca Dan Mematuhi Ru
   ✎ Nurutomo
   ✎ Mhankbarbar
   ✎ Zeeone Ofc
-  ✎ Christian ID
+  ✎ Yuuta Gw Sendiri🗿
   ✎ Izumi Team
   ✎ Ryuka Team
   ✎ Deff
